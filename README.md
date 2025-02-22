@@ -38,6 +38,14 @@ Enjoy your journey through Bangladesh's cultural heritage with Bangladesh AR Exp
 
 # Demo
 
-![IMG_0001](https://github.com/user-attachments/assets/8daa14e1-18a1-4d9e-9b![Uploading Screenshot 2025-02-21 at 4.12.54 PM.png…]()
-e8-25bc7637791c) <img width="1206" alt="spls  pls work" src="https://github.com/user-attachments/assets/374f65eb-3f97-4e91-9b42-4e7c5d2a6320" />
+![IMG_0001](https://github.com/user-attachments/assets/bc1fc5b1-50e9-413f-9cca-c432f70cf372)
+
+<img width="681" alt="Screenshot 2025-02-21 at 4 12 54 PM" src="https://github.com/user-attachments/assets/3efa2d53-82f2-4948-9bd2-3077f08b6d5c" />
+
+<img width="1206" alt="spls  pls work" src="https://github.com/user-attachments/assets/ca5bb64a-a660-47fb-9870-f3bee97cb4a2" />
+
+
+
+
+
 
